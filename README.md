@@ -18,3 +18,5 @@
 <p align="center" dir="auto">
  <a href="https://rentry.co/git">rentry🍬</a>     <a href="https://cleric.atabook.org/">ata</a>     <a href="https://williem.straw.page/">strawpage</a>  
 
+
+**shout:** @charrIIe is problentaic @vysters kicks puppies and @fIowerboy spits in homeless peopls face
