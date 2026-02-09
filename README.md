@@ -19,4 +19,4 @@
  <a href="https://rentry.co/git">rentry🍬</a>     <a href="https://cleric.atabook.org/">ata</a>     <a href="https://williem.straw.page/">strawpage</a>  
 
 
-**shout:** @charrIIe is problentaic @vysters kicks puppies and @fIowerboy spits in homeless peopls face
+"hey, LaRusso, look, uh...It's me. Its Johnny. Listen. uh..I know I said some things, like how you shouldn't come back or whatever, but I didnt actually mean that. You and I, we have our moments, but the one thing we share is we're there for the kids... and they need you right now. I cant believe im saying this, but I guess I need you too, so...just get your ass back here."
