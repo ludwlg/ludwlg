@@ -19,4 +19,6 @@
 
 ![](https://files.catbox.moe/ysropv.png)
 
+![](https://files.catbox.moe/ay43ah.png)
+
 hank u to king ricky for the ifaron fanart.
