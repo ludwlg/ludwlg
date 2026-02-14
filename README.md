@@ -17,8 +17,4 @@
  <a href="https://rentry.co/git">rentry💣</a>     <a href="https://cleric.atabook.org/">ata</a>     <a href="https://williem.straw.page/">strawpage</a>  
 
 
-![](https://files.catbox.moe/ysropv.png)
-
-![](https://files.catbox.moe/ay43ah.png)
-
-hank u to king ricky for the ifaron fanart.
+irl germany form the hit series hetalia and will byers from the hit series stranger things and ororon from the hit game genshin impact 
