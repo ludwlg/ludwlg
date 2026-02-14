@@ -1,11 +1,11 @@
-ㅤㅤㅤㅤㅤㅤ               ㅤ         ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=🖱&style=plastic&color=423b33)
+ㅤㅤㅤㅤㅤㅤ               ㅤ         ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=🇩🇪&style=plastic&color=121211)
 
 
 
 ㅤ
 
 
-[Screenrecording2026-02-0912.17.15AM-ezgif.com-video-cutter.webm](https://github.com/user-attachments/assets/56997bc4-eda6-49de-8385-cf7bcc16bd22)
+![](https://i.pinimg.com/originals/bf/55/12/bf55122ccfae1e283ceafea81657aa43.gif)
 
 
 
