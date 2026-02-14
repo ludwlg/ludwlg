@@ -14,7 +14,7 @@
 <br>  
 <p align="center">
 <p align="center" dir="auto">
- <a href="https://rentry.co/git">rentry💣</a>     <a href="https://cleric.atabook.org/">ata</a>     <a href="https://williem.straw.page/">strawpage</a>      <a href="https://rentry.co/cyg8we9c">pt rules</a>     
+ <a href="https://rentry.co/git">rentry💣</a>     <a href="https://german.atabook.org/">ata</a>     <a href="https://williem.straw.page/">strawpage</a>      <a href="https://rentry.co/cyg8we9c">pt rules</a>     
 
 
 irl germany form the hit series hetalia and will byers from the hit series stranger things and ororon from the hit game genshin impact 
