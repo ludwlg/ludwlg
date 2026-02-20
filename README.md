@@ -28,6 +28,8 @@ irl germany form the hit series hetalia and will byers from the hit series stran
 
 https://github.com/user-attachments/assets/c128ccc9-44cb-44a1-999f-398081254da3
 
+i love germanys va oh m ygosh i h mysgoh i loev you hoh m ygsoh i love you kid.
+
 
 
 
