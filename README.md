@@ -24,6 +24,13 @@ https://github.com/user-attachments/assets/7f5dc061-2ab6-449c-acd2-56b49b0bdc8c
 irl germany form the hit series hetalia and will byers from the hit series stranger things and ororon from the hit game genshin impact 
 
 
+
+
+https://github.com/user-attachments/assets/c128ccc9-44cb-44a1-999f-398081254da3
+
+
+
+
 ![](https://files.catbox.moe/n44l2p.png)
 
 ![](https://i.pinimg.com/736x/21/16/75/211675d2126fac5735956aff35b9d2c5.jpg)
