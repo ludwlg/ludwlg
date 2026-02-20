@@ -33,6 +33,10 @@ i love germanys va oh m ygosh i h mysgoh i loev you hoh m ygsoh i love you kid.
 
 
 
+https://github.com/user-attachments/assets/aa85d230-fd7c-431c-97b0-b464eefb579c
+
+italy: o-one...b-big mac..ple alpha gloriosu amazing hot cute beautiful cute amazing aodrable wonderful fantastic super awesome germany: NO FAT EW japan: be nice ok?
+
 ![](https://files.catbox.moe/n44l2p.png)
 
 ![](https://i.pinimg.com/736x/21/16/75/211675d2126fac5735956aff35b9d2c5.jpg)
