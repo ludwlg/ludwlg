@@ -34,6 +34,10 @@ i love germanys va oh m ygosh i h mysgoh i loev you hoh m ygsoh i love you kid.
 
 
 
+https://github.com/user-attachments/assets/d958f5aa-c805-46db-bd51-4e142b2e59b2
+
+
+
 
 https://github.com/user-attachments/assets/aa85d230-fd7c-431c-97b0-b464eefb579c
 
