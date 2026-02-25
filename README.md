@@ -39,12 +39,3 @@ https://github.com/user-attachments/assets/aa85d230-fd7c-431c-97b0-b464eefb579c
 
 italy: o-one...b-big mac..ple alpha gloriosu amazing hot cute beautiful cute amazing aodrable wonderful fantastic super awesome germany: NO FAT EW japan: be nice ok?
 
-![](https://files.catbox.moe/n44l2p.png)
-
-![](https://i.pinimg.com/736x/21/16/75/211675d2126fac5735956aff35b9d2c5.jpg)
-
-![](https://i.pinimg.com/736x/ae/fb/74/aefb74d0d4c9f89e26460fcf1376156c.jpg)
-
-![](https://i.pinimg.com/736x/23/4b/b2/234bb2d5299f0f8788260cd1c183afd4.jpg)
-
-![](https://i.pinimg.com/736x/d1/93/54/d193543256df99947d95e08596b10be9.jpg)
