@@ -1,4 +1,6 @@
-![](https://files.catbox.moe/9wjsys.png)
+<p align="center">
+  check out my rentry resourse page! 
+ <a href="https://rentry.co/homefeed";>here!</a>ㅤ
 
 ㅤㅤㅤㅤㅤㅤ               ㅤ         ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=⛨&style=plastic&color=000000)  ㅤ i ♡ captain america.
 
