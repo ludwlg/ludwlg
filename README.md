@@ -2,11 +2,11 @@
   check out my rentry resource page 
  <a href="https://rentry.co/homefeed";>here!</a>ㅤ
 
-ㅤㅤㅤㅤㅤㅤ               ㅤ         ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=⛨&style=plastic&color=000000)  ㅤ i ♡ captain america.
+ㅤㅤㅤㅤㅤㅤ               ㅤ         ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=🎣&style=plastic&color=000000)  ㅤ i ♡ captain america.
 
 
 <p align="center">
-<img src="https://i.pinimg.com/originals/34/ec/90/34ec90f47445de52d099095c60351319.gif";width="400"/>
+<img src="https://files.catbox.moe/1gypkt.gif";width="400"/>
 </p>
 
 <p align="center">
